@@ -1,1 +1,1 @@
-👋 Hello, I'm @CappeDiem, but go by Cappe aswell.
+Hi 👋, I'm @CappeDiem but usually go by Cappe
