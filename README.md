@@ -1,1 +1,1 @@
-Hi 👋, I'm @CappeDiem but usually go by Cappe
+Hi 👋, I'm @CappeDiem but usually go by Cappe. I'm a software developer from Finland and i like creating random things and sometimes publish them here. Also i host some game servers and make addons for them sometimes.
